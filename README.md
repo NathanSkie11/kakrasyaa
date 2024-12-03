@@ -1,2 +1,0 @@
-# kakrasyaa
-kakkrasyaaaa
